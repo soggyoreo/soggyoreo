@@ -9,3 +9,5 @@
 ☆ my comfort/fav character is chuuya.
 
 ☆ before interacting; PLEASEEE read my pronouns page!!
+
+☆ im sorry but IRLs esp chuuya IRLs dni every one of you guys i meet are always rude or disrespect my boundries :(
